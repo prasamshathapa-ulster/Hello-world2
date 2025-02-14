@@ -1,5 +1,5 @@
 # Hello-world2
-i wan to graduate 
+i want to graduate 
 
 
-happy valentines day to all of you ny ulster guys 
+happy valentines day to all of you my ulster guys 
